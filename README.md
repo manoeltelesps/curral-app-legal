@@ -1,0 +1,1 @@
+# curral-app-legal
