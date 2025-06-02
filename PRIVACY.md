@@ -2,7 +2,7 @@
 
 **Última atualização: 02 de junho de 2025**
 
-A sua privacidade é importante para nós. Esta política de privacidade explica como o aplicativo **Curral** ("nós", "nosso") lida com suas informações.
+A sua privacidade é importante para nós. Esta política de privacidade explica como o aplicativo **Curral**, lida com suas informações.
 
 ---
 
